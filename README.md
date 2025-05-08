@@ -1,4 +1,4 @@
-## Hi, I'm Luciano there 👋 💻
+## Hi, I'm Luciano 👋 💻
 ![image](https://github.com/user-attachments/assets/fad5a2d8-4b06-4490-ade3-dc2a3e2d6d9f)
 
 <!--
